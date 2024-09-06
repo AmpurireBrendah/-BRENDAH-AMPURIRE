@@ -1,0 +1,2 @@
+# -BRENDAH-AMPURIRE
+Lecture3
